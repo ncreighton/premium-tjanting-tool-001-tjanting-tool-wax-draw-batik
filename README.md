@@ -1,0 +1,2 @@
+# premium-tjanting-tool-001-tjanting-tool-wax-draw-batik
+Drowning in scattered tjanting sketches, wax temperature notes, and batik design ideas across multiple notebooks? The Tjanting Tool &amp; Wax Draw Batik Craft Hub brings complete organization to your batik workflow—so you can focus on creating, not searching.  This Notion template centralizes every aspect of your tjanting and wax-drawing practice: tool
